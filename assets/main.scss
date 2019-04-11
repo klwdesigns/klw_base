@@ -1,0 +1,40 @@
+---
+---
+
+@import "minima";
+
+
+h1 {
+     font-weight: bold;
+}
+
+
+
+/**
+ * Site header
+ */
+.site-header {
+  border-top: 5px solid #424242;
+  min-height: 55.95px;
+  border-bottom: 0px solid #e8e8e8;
+  position: relative; }
+
+.site-title {
+  visibility: hidden; }
+
+.site-nav {
+     visibility: hidden; }
+
+/**
+* post-title*/
+
+.post-title {
+  font-size: 42px;
+  letter-spacing: -1px;
+  line-height: 1;
+  color: #8ac6ef;
+
+}
+  @media screen and (max-width: 800px) {
+    .post-title {
+      font-size: 36px; } }
