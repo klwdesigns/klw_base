@@ -1,7 +1,4 @@
 ---
-# Feel free to add content and custom Front Matter to this file.
-# To modify the layout, see https://jekyllrb.com/docs/themes/#overriding-theme-defaults
-
 layout: page
 title: Krista Lyn White
 ---
@@ -42,7 +39,6 @@ title: Krista Lyn White
   <summary style="outline:none;"><h1 style="display: inline; color:#f7b523;">Hyperlinks & Contact</h1></summary>
   <ul>
      <li><a style="color:#f7b523;" href="https://saint-bisou.com">Saint-Bisou.com</a></li>
-     <li>Podcast [in the works]</li>
      <li>Email: [anything] at this domain</li>
   </ul>     
 </details>
