@@ -39,6 +39,7 @@ title: Krista Lyn White
   <summary style="outline:none;"><h1 style="display: inline; color:#f7b523;">Hyperlinks & Contact</h1></summary>
   <ul>
      <li><a style="color:#f7b523;" href="https://saint-bisou.com">Saint-Bisou.com</a></li>
+     <li><a style="color:#f7b523;" href="https://klw-designs.com">KLW Designs</a></li>
      <li>Email: [anything] at this domain</li>
   </ul>     
 </details>
