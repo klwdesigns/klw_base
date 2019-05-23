@@ -11,5 +11,5 @@ Check out his technique for self-therapy/strengthening for the lower back: [http
 
 You’ll be dancing like Dale Brisby in a rodeo in no time.
 
-**All videos were viewed using Firefox Focus. The writing/publishing of this note was also done via Firefox Focus. Zuckerberg profitted nothing from my activities.
+**All videos were viewed using Firefox Focus. The writing/publishing of this note was also done via Firefox Focus. Zuckerberg profitted nothing from my activities. Nor does he know that I think Dale Brisby does a pretty darn good immitation of an old rancher.
 
