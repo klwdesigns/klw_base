@@ -7,4 +7,4 @@ As referenced in the previous note, Dude Perfect and their videos can be found [
 
 I found their ["Ping Pong Trick Shots 5"](https://www.youtube.com/watch?v=2t3GnbhbVCc) from two weeks ago quite apropos.
 
-\*\*Not all who could've turned pro, go pro. Some end up on YouTube. Some sit at a desk all day long.
+\*\*Not all who could've turned pro, go pro. Some end up on Youtube. Some sit at a desk all day long and never look at Youtube.
