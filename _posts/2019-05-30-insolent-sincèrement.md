@@ -9,4 +9,4 @@ date: 2019-05-31T04:25:44.503Z
 
 50 points for the cork.
 45 for the label.
-Good until tomorrow. 
+Good until, uhm, tomorrow. 
