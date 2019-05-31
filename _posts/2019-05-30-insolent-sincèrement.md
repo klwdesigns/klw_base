@@ -7,4 +7,6 @@ date: 2019-05-31T04:25:44.503Z
 
 ![](/assets/uploads/5dabb2fd-26e0-4ee9-9b90-14e5321ea8d2.jpeg)
 
-Yeah. 
+50 points for the cork.
+45 for the label.
+Good until tomorrow. 
