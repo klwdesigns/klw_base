@@ -3,7 +3,7 @@ layout: post
 title: La Belle Française
 date: 2019-06-03T21:29:51.137Z
 ---
-The lady in the photo below led a remarkable life which spanned nearly 100 years. No small accomplishment for a woman born in 1839, let alone for someone who emigrated from two countries, settling in America, with nothing but her family and a lot of hope.
+The lady in the photo below led a remarkable life which spanned nearly 100 years. No small accomplishment for a woman born in 1848, let alone for someone who emigrated from two countries, settling in America, with nothing but her family and a lot of hope.
 
 ![](/assets/uploads/81f65719-098e-4776-9139-62ee7fc1e6c6.jpeg)
 
