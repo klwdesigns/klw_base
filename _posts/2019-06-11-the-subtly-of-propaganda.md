@@ -15,6 +15,12 @@ But I must say, that’s no excuse.
 
 As I see it, propagandists as horrible as Joseph Goebbels and as inane as a tennis racquet PR rep, all prey on one weakness common to us all: pride. 
 
-Yep. Pride. Tell someone a half-truth about “all mighty me”, especially something that “all mighty me” longs to hear, and you’re halfway to persuading them to do what you want them to do.
+Yep. Pride. Pride in intellect. Pride in country. Pride in social position or status. Pride in religion or nonreligion. Pride in \[fill in the blanks].
+
+Tell someone a half-truth about “all mighty me”, especially in an area of profound hurt or wounding—something that “all mighty me” longs to hear—and you’re halfway to persuading them to do what you want them to do. Because, well, they can’t possibly step back and admit that they might have been made a fool. Pride won’t let them. Only humility can do that.
+
+Only humility can disarm the propagandist.
+
+Question everything, especially yourself. 
 
 Scary.
