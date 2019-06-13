@@ -9,7 +9,9 @@ When I first read this statement by O’Keeffe, I didn’t fully grasp her meani
 
 Today, while walking the ruins of the Jemez pueblo in Jemez Springs, New Mexico, I understood O’Keeffe. I not only saw the dark veil in piles of crumbling clay bricks, I felt the dark veil, and I think I saw its shadows in the faces of the Indians who still live in Jemez and run the Jemez National Historic Site.
 
-The Roman Catholic belief system was forced upon the Indians of Jemez by the Spanish explorers and colonists of the 17th century. Dubbing all that they saw “New Spain,” the 
+The Roman Catholic belief system was forced upon the Indians of Jemez by the Spanish explorers and colonists of the 17th century. Dubbing all that they saw “New Spain,” the Spanish believed it was their duty to punish, even kill, any Indian who would not convert to Roman Catholicism or contribute to its establishment in the pueblo. There was not only no separation of church and state. There was no true understanding of Jesus Christ.
+
+As my friends and I stood under the bright New Mexico sun and contemplated the darkness that the Spanish brought to Jemez, we wondered at the enduring tolerance of the Jemez Indians. It was the Indians that had constructed the first Roman Catholic church in the Jemez Valley. Women, no less, had been the main laborers. But this labor was all done under coercion. Across the street from the ruins was a modern Roman Catholic church.  
 
 When the Spanish explorers and colonists made their way into what they called “New Spain,” they brought their priests and friars with them. The friars left in the Jemez Valley forced the Indians of the Jemez Pueblo to build a Roman Catholic church. The Indians who were mostly women. 
 
