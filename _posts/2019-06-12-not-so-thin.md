@@ -9,14 +9,14 @@ When I first read this statement by O’Keeffe, I didn’t fully grasp her meani
 
 Today, while walking the ruins of the Jemez pueblo in Jemez Springs, New Mexico, I understood O’Keeffe. I not only saw the dark veil in piles of crumbling clay bricks, I felt the dark veil, and I think I saw its shadows in the faces of the Indians who still live in Jemez and run the Jemez National Historic Site.
 
-The Roman Catholic belief system was forced upon the Indians of Jemez by the Spanish explorers and colonists of the 17th century. Dubbing all that they saw “New Spain,” the Spanish believed it was their duty to punish, even kill, any Indian who would not convert to Roman Catholicism or contribute to its establishment in the pueblo. There was not only no separation of church and state. There was no true understanding of Jesus Christ.
+The Roman Catholic belief system was forced upon the Indians of Jemez by the Spanish explorers and colonists of the 17th century. Dubbing all that they saw “New Spain,” the Spanish believed it was their duty to punish, even kill, any Indian who would not convert to Roman Catholicism or contribute to its establishment in the region. There was not only no separation of church and state. There was no true understanding of Jesus Christ.
 
-Standing under the bright New Mexico sun, contemplated the darkness that the Spanish brought to Jemez, we wondered at the enduring tolerance of the Jemez Indians. It was the Indians that had constructed the first Roman Catholic church in the Jemez Valley. Women, no less, had been the main laborers. But this labor was all done under coercion. Across the street from the ruins was a modern Roman Catholic church.  
+Standing in the center of the church in ruins, under the bright New Mexico sun, it seemed as if the darkness that the Spanish had brought had dissipated. But then I looked across the street. There was a new Roman Catholic church. Its walls were not made of clay bricks molded by the hands of Indian women. It was made of cement and had a bright white paint job.
 
-When the Spanish explorers and colonists made their way into what they called “New Spain,” they brought their priests and friars with them. The friars left in the Jemez Valley forced the Indians of the Jemez Pueblo to build a Roman Catholic church. The Indians who were mostly women. 
+It looked like a lot of baptist, Presbyterian and Methodist churches in America. I wondered how long it would take until it was in ruins too, and someone like me stood on its rumble, looking up at the sun, muttering to herself, “How did 
 
-Conversion was not an option in 17th century Spain, why would it be in 17th century “New Spain”?
 
-There are still many Roman Catholic churches and retreats centers in New Mexico. The Jemez Valley is said to be the place where Roman Catholic leadership has hidden a group of priests publicly accused paedophilia.
 
-Seeing such a place
+But the problem that had existed since Constantine (and before) was still there: Church hierarchy.
+
+I’m not sure if this was the dark veil that O’Keeffe alluded to.
