@@ -11,6 +11,6 @@ Yesterday, while walking the ruins of the Franciscan mission in the Jemez Pueblo
 
 O’Keeffe’s paintings of the black crosses of Taos have a spirituality about them that can be difficult to articulate. Much of her work is that way. Like beauty itself, her paintings are more idea and concept than a rendering of physical details.
 
-But just like O’Keeffe’s black crosses, the ruins of the Franciscan mission church convey a spirituality that is difficult to articulate. Without knowing the history of its construction, you might sense a greatness, a power that makes you feel small within its walls, perhaps even cared for. 
+But just like O’Keeffe’s black crosses, the ruins of the Franciscan mission church convey a spirituality that is difficult to articulate. Without knowing the history of its construction, you might sense a greatness, a power that makes you feel small, perhaps even insignificant, within its walls.  
 
-But this is a dark spirituality indeed that can only end in ruin, and will continually until it is understood that the Spirit of God does not dwell in houses made by human hands.
+But this is a dark spirituality indeed that can only end in ruin. The Spirit of God does not dwell in houses made by human hands. And black crosses are no sure sign of a life filled with the One who is Light.
