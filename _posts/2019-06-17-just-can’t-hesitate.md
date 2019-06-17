@@ -8,3 +8,5 @@ date: 2019-06-17T19:47:44.551Z
 Pro tip: Don’t hesitate, don’t play, don’t try to be a star in front of the goal.
 
 Just score.
+
+It’s not a chess game.
