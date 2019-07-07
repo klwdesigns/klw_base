@@ -7,4 +7,3 @@ date: 2019-07-07T17:00:02.525Z
 
 (Women’s) World Cup 2019 Champions.
 
-Was there another world cup this year?
