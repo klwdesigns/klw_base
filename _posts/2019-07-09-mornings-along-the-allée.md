@@ -9,4 +9,4 @@ Allée : (de jardin) path; (en ville) avenue, drive.
 
 In context: The empress likes to sit along the allée and watch the sun set on the horizon.
 
-\*\*defintion credit: Dictionannaires Le Robert, Collins Gem
+\*\*defintion credit: Dictionnaires Le Robert, Collins Gem
