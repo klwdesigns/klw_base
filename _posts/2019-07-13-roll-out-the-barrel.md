@@ -3,8 +3,8 @@ layout: post
 title: Roll Out the Barrel
 date: 2019-07-13T04:31:56.753Z
 ---
-Just say no to accordions.
+Just no accordions.
 
-And tall argyle socks.
+Or argyle socks.
 
 <https://youtu.be/j11MOncimNQ>
