@@ -9,9 +9,11 @@ Utterly fascinated by Dr. John Sanford’s recent lecture to the NIH:
 
 [Genetic Entropy: Can Gnome Degradation be Stopped?](https://youtu.be/2Mfn2upw-O8)
 
-In it, Sanford explains the data the amassing which offers mathematical evidence against the plausibility of the evolution of humans. 
+In the lecture, Sanford explains his study of the amassing gnome data which offers mathematical evidence against the plausibility of the evolution of humans.
 
-And well, let’s be honest, Darwin (and all the evolutionists before him) had no clue about genetics. He was not a mathematician. His theory about the Origin of Species was philosophical and conceptual. (His main aim was to cast doubt on the existence of Adam and Eve, as described in the biblical text.)
+Against human evolution? How can that be?
+
+Well, let’s be honest, Darwin (and all the evolutionists before him) had no clue about genetics. He was not a mathematician. His book, _On the Origin of Species_, was philosophical and conceptual. He studied theology. And, he didn’t like the implications of that the all of humanity shared two common ancestors—Adam and Eve—as described in the biblical text.)
 
 It seems that a lot of what has been accepted and taught as science will need to be rewritten once the work of Dr. John Sanford and others on genetic entropy / gnome degradation is thoroughly evaluated and acknowledged.
 
