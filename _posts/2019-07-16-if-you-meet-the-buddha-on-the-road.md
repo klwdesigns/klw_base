@@ -5,6 +5,8 @@ date: 2019-07-17T02:50:08.120Z
 ---
 "If you meet the Buddha on the road, kill him."
 
+What?!
+
 The Zen Buddhist koan is not an endorsement of murder, of course. Buddhists aren't suppose to harm any living thing, not in according to traditional teachings anyway. 
 
 The meaning (as I understand it) is simple and can have broad application, far beyond Buddhism: Don't let yourself fall under the spell of anyone, especially not someone who seems to have achieved "total enlightenment."
@@ -15,13 +17,13 @@ I'm not really sure how the keepers of Roman Catholic doctrine get around these 
 
 I don't think the rise of eastern religions in western society is purely the result of greater awareness about other cultures. Like any religion, I think people are trying to satisfy some felt (or real) need in their psychological well-being. In our times, religious pursuits (especially frenzied ones in the audience of a guru-type) seem to be more about emotion and psychologically avoidance than spiritual discernment, psychological and emotional healing and living in true community.
 
-I've had the sad experience of knowing three women who were childhood victims of physical, sexual and emotional abuse at the hands of their fathers. All of these women, after separating from the family and removing themselves from the abuse, fell under the spell of another abuser. This has happened multiple times for all the women. The pattern is not new and is well-documented among childhood victims of abuse. But why I mention these women here is that all the women's abusers (post-father) were supposed spiritual leaders.
+I've had the sad experience of knowing three women who were childhood victims of physical, sexual and emotional abuse at the hands of their fathers. All of these women, after separating from the family and removing themselves from the abuse, fell under the domination of other abusers. All the women have been abused by multiple people in adulthood. The attraction to abusers is not uncommon and is well-documented among adult childhood victims of abuse. The reason I mention my friends here is that all the women (post-father) were the victims of spiritual and emotional (one sexual) abuse by spiritual/religious leaders.
 
-One of the leaders was a Hindu/New Age guru. Another was a Buddhist. Still yet another was a cult leader who masquerades as some kind of teacher with a special knowledge of the Bible. It's always some special insider knowledge, isn't it?
+One of the leaders was a Hindu/New Age guru. Another was a Buddhist. Still yet another was a cult leader who masquerades as some kind of teacher with a special knowledge of the Bible. (It's always some special insider knowledge, isn't it?)
 
-It doesn't matter what you tell the person under a spell, they can't hear you and they certainly will not allow themselves to walk away from the (current) dream person whom "they've waited for all their life." 
+And while I've tried to encourage all of my friends to get some psychological healing/therapy, they didn't or couldn't hear me. They were under a spell. They couldn't hear me (or others). In their minds, they had found the person who had all the answers, who loved them and protected them in ways that dad or mom never did, who knew all their thoughts, who was like a god.
 
-The power of the brain to remain in a state of denial is truly amazing! 
+The power of the brain to deny the existence of such a self-destruction pattern is truly amazing! 
 
 Severely wounded people will look for hope where they think they can find a final end to their psychological suffering. Unfortunately, they only seemed doomed to repeat it in religions of gurus, head pastors and Buddhas.
 
