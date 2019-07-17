@@ -23,7 +23,7 @@ One of the leaders was a Hindu/New Age guru. Another was a Buddhist. Still yet a
 
 And while I've tried to encourage all of my friends to get some psychological healing/therapy, they didn't or couldn't hear me. They were under a spell. They couldn't hear me (or others). In their minds, they had found the person who had all the answers, who loved them and protected them in ways that dad or mom never did, who knew all their thoughts, who was like a god.
 
-The power of the brain to deny the existence of such a self-destruction pattern is truly amazing! 
+The power of the brain to deny the existence of such a self-destruction pattern is truly amazing and incredibly heart-breaking. 
 
 Severely wounded people will look for hope where they think they can find a final end to their psychological suffering. Unfortunately, they only seemed doomed to repeat it in religions of gurus, head pastors and Buddhas.
 
