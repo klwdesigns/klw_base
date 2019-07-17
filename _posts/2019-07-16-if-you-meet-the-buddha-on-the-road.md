@@ -3,11 +3,9 @@ layout: post
 title: If You Meet the Buddha on the Road...
 date: 2019-07-17T02:50:08.120Z
 ---
-If your into Zen Buddhism or are well-read on Eastern religions, then you'll probably be able to finish the title. If not, well, here's the full proverb:
-
 "If you meet the Buddha on the road, kill him."
 
-It's not an endorsement of murder, of course. Buddhists aren't suppose to harm any living thing, not in according to traditional teachings. 
+The Zen Buddhist koan is not an endorsement of murder, of course. Buddhists aren't suppose to harm any living thing, not in according to traditional teachings anyway. 
 
 The meaning (as I understand it) is simple and can have broad application, far beyond Buddhism: Don't let yourself fall under the spell of anyone, especially not someone who seems to have achieved "total enlightenment."
 
