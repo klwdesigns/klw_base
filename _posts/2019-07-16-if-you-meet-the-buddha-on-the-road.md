@@ -3,10 +3,6 @@ layout: post
 title: If You Meet the Buddha on the Road...
 date: 2019-07-17T02:50:08.120Z
 ---
-The following was inspired by: 
-
-[The Myth of the Totally Enlightened Guru by John Horgan](http://www.johnhorgan.org/the_myth_of_the_totally_enlightened_guru_15274.htm)
-
 If your into Zen Buddhism or are well-read on Eastern religions, then you'll probably be able to finish the title. If not, well, here's the full proverb:
 
 "If you meet the Buddha on the road, kill him."
@@ -35,4 +31,10 @@ So, if you meet the Buddha on the road, kill him?
 
 Is there any other way to find true freedom?
 
-For more on the dark side of gurus and Buddhism from those who experienced it:
+For more on the dark side of gurus and Buddhism: 
+
+[The Myth of the Totally Enlightened Guru](http://www.johnhorgan.org/the_myth_of_the_totally_enlightened_guru_15274.htm) (JohnHorgan.com)
+
+[Why I Ditched Buddhism](https://newhumanist.org.uk/articles/4021/the-dark-side-of-buddhism) (Slate)  
+
+[Why I Don't Dig Buddhism](https://blogs.scientificamerican.com/cross-check/why-i-dont-dig-buddhism/) (Expanded/updated version of the above article published by the Scientific American)
