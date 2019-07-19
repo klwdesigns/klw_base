@@ -11,7 +11,7 @@ From the Second Quartro edition of Shakespeare's _Hamlet_, Act III, Scene II, sp
 
 For the full context, read the full scene [here](http://shakespeare.mit.edu/hamlet/hamlet.3.2.html). I'm not going to do damage to the masterpiece by trying to explain it. (Plus, I have company coming over for a bbq in a few minutes and my nephews are more enjoyable to be with than my Mac.) 
 
-There's reason Shakespeare 
+Shakespeare's genius is straight up  
 
 The play-within-the-play, _The Mouse Trap_, is about the murder of a duke by his wife. 
 
