@@ -9,6 +9,10 @@ From the Second Quartro edition of Shakespeare's _Hamlet_, Act III, Scene II, sp
 
 "Madam, how like you this play?"
 
+For the full context, read the full scene [here](http://shakespeare.mit.edu/hamlet/hamlet.3.2.html). I'm not going to do damage to the masterpiece by trying to explain it. (Plus, I have company coming over for a bbq in a few minutes and my nephews are more enjoyable to be with than my Mac.) 
+
+There's reason Shakespeare 
+
 The play-within-the-play, _The Mouse Trap_, is about the murder of a duke by his wife. 
 
 during the performance of a play put on by Prince Hamlet. Hamlet purpose in putting on the play at court is to force some emotion from that will reveal father's murderer. Hamlet's mother's response, quoted above, is ironic.
