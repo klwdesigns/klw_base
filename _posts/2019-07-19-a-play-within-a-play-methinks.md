@@ -11,7 +11,7 @@ From the Second Quarto edition of Shakespeare's _Hamlet_, Act III, Scene II, spo
 
 "Madam, how like you this play?"
 
-For the quote context within the scene, read [here](http://shakespeare.mit.edu/hamlet/hamlet.3.2.html). Or, for Mel Gibson's performance of the later part of Scene II, watch [here](https://www.youtube.com/watch?v=KOGjVUa_iIE). 
+For the context (within the scene), read [here](http://shakespeare.mit.edu/hamlet/hamlet.3.2.html). Or, for Mel Gibson's performance of the later part of Scene II, watch [here](https://www.youtube.com/watch?v=KOGjVUa_iIE). 
 
 Better yet, just watch the whole play, and wonder at the play-within-the-play.
 
