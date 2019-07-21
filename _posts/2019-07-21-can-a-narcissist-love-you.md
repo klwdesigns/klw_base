@@ -3,7 +3,7 @@ layout: post
 title: Can a Narcissist Love You?
 date: 2019-07-21T15:06:18.326Z
 ---
-Dealing with a narcissist can be one of the most confusing and painful psychological experiences in one’s life. And if your mother or father was a narcissist (or struggled with narcissistic tendencies), meeting a narcissist can feel like reuniting with family. You might even feel like “Ah, I’ve finally found the love of my life.” 
+Dealing with a narcissist can be one of the most confusing and painful psychological experiences in one’s life. And if your mother or father was a narcissist (or struggled with narcissistic tendencies), meeting a narcissist can feel like reuniting with family. You might even think, “Ah, I’ve finally found the love of my life.” 
 
 Illusions. Illusions. Run.
 
