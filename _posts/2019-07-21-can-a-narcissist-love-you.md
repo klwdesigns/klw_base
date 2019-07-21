@@ -9,6 +9,8 @@ Illusions. Illusions. Run.
 
 Run to a psychotherapist. 
 
+And pray to God (not yourself or your reflecting partner) for healing.
+
 Truth is, children of narcissists will struggle with narcissism themselves. [Codependency](https://www.whatiscodependency.com/codependency-symptoms-cause-treatment/) is also a tell-tale sign of a child of narcissistic parents and or parenting.
 
 Why?
@@ -23,13 +25,13 @@ It’s a start, anyway.
 
 “Real love is not romance, and co-dependency is not love.” 
 
-For more on Narcissism and dealing with Narcissism in others and yourself:
+For more on narcissism and dealing with narcissism in others and yourself:
 
 Watch:
 
-[Why Narcissists Love Bomb](https://youtu.be/iVmwRKYjMTY)
+[Why Narcissists Love-Bombing](https://youtu.be/iVmwRKYjMTY)
 
-Why 
+[Why Empaths Fall for Love-Bombing](https://youtu.be/9_ojB1RuC5Q) 
 
 Read:
 
