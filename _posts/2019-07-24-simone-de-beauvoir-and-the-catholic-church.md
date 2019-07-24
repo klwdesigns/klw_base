@@ -7,7 +7,7 @@ date: 2019-07-24T14:41:54.359Z
 
 Given the opportunity, I would have asked Simone de Beauvoir many questions. The first being:
 
-Did you ever stop to consider that your Roman Catholic upbringing might have negatively influenced your reading Genesis and other books of the Bible?
+Did you ever stop to consider that your Roman Catholic upbringing might have negatively influenced your reading of Genesis, and other books of the Bible?
 
 The second question (depending on her answer to the first):
 
