@@ -7,7 +7,7 @@ date: 2019-07-24T14:41:54.359Z
 
 I would've liked to have had the opportunity to speak with Simone de Beauvoir. I wouldn't have asked her many questions. The first being:
 
-Did you ever stop to consider that your Roman Catholic upbringing might have negatively influenced your view of Jesus Christ?
+Did you ever stop to consider that your Roman Catholic upbringing might have negatively influenced your view of the books of the Bible, particularly Genesis?
 
 The second question (depending on her answer to the first):
 
