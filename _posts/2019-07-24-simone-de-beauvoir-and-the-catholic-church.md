@@ -7,11 +7,11 @@ date: 2019-07-24T14:41:54.359Z
 
 Given the opportunity, I would have asked Simone de Beauvoir many questions. The first being:
 
-Did you ever stop to consider that your Roman Catholic upbringing might have negatively influenced your view of the books of the Bible, particularly Genesis?
+Did you ever stop to consider that your Roman Catholic upbringing might have negatively influenced your reading Genesis and other books of the Bible?
 
 The second question (depending on her answer to the first):
 
-Have you ever made a serious study of the books of the Bible, examining the original languages, the historical contexts in which the books were written, including the history of the Jews and first century Greco-Roman culture and religions?
+Have you ever made a serious study of the books of the Bible as a cohesive, unfolding history, examining the original languages, the literary genres used, and the historical, religious, and political contexts in which the books were written, including the history of the Jews and first century Greco-Roman culture and religions?
 
 (I can't find anywhere that she ever made a serious study of the books of the Bible in part or as a cohesive, unfolding story of redemption.)
 
