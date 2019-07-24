@@ -3,11 +3,13 @@ layout: post
 title: Simone de Beauvoir and the Catholic Church
 date: 2019-07-24T14:41:54.359Z
 ---
+![](/assets/uploads/ee8c748a-9add-44af-8852-d8db7bcc2a4d.jpeg)
+
 I would've liked to have had the opportunity to speak with Simone de Beauvoir. I wouldn't have asked her many questions. The first being:
 
 Did you ever stop to consider that your Roman Catholic upbringing might have negatively influenced your view of Jesus Christ?
 
-And the second question, I would ask (depending on her answer):
+The second question (depending on her answer to the first):
 
 Have you ever made a serious study of the books of the Bible, examining the original languages, the historical contexts in which the books were written, including the history of the Jews and first century Greco-Roman culture and religions?
 
@@ -17,10 +19,10 @@ I would begin with these two questions because I find again and again in Beauvoi
 
 Roman Catholicism = Christianity
 
-The third question I might ask:
+And the third question (depending on how the conversation was going):
 
-How was being "Sartre's woman" any more liberating, philosophically, physically, emotionally or otherwise, than being a follower of a religion that sees woman as second to man?
+How was being "Sartre's woman" (and then Algren's) any more liberating, philosophically, physically, emotionally or otherwise, than being a follower of a religion that sees woman as second to man?
 
-Seems to me like Beauvoir's view of man 
+From a distance, seems to me like Beauvoir's view of life wasn't so beau nor was it sans parti pris. But I can't blame her. We all are influenced by experiences in childhood, for good or for bad. And those influences, many times, come out in ways that we don't even realize, even the most intellectual of us.
 
-\*\*A negative filter has been added to the photo of my copy of _The Second Sex_ by Simone de Beauvoir for all the above reasons.
+\*\*A negative filter has been added to the photo of my copy of _The Second Sex_ by Simone de Beauvoir to emphasize my point and to accentuate the blurred effect on the word second. No offense to the designer, of course.
