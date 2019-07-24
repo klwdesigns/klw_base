@@ -21,7 +21,7 @@ Roman Catholicism = Christianity
 
 Roman Catholic = Christian
 
-The Crusades = Biblically supported political/military behavior
+The Crusades = Biblically supportable political/military behavior
 
 A third question might be (depending on how the conversation was going):
 
