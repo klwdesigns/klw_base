@@ -11,15 +11,19 @@ Did you ever stop to consider that your Roman Catholic upbringing might have neg
 
 The second question (depending on her answer to the first):
 
-Have you ever made a serious study of the books of the Bible as a cohesive, unfolding history, examining the original languages, the literary genres used, and the historical, religious, and political contexts in which the books were written, including the history of the Jews and first century Greco-Roman culture and religions?
+Have you ever made a serious study of the books of the Bible as a cohesive, unfolding history, examining the text in the original languages, with consideration of the literary genres used, and the historical, religious, and political contexts in which the books were written?
 
-(I can't find anywhere that she ever made a serious study of the books of the Bible in part or as a cohesive, unfolding story of redemption.)
+(I can't find anywhere that she ever made a serious study of the books of the Bible in part or in whole, let alone possessed a working knowledge of Hebrew or Koine Greek.)
 
-I would begin with these two questions because I find again and again in Beauvoir's writings (and those who hold similar views) the incorrect association/beliefs:
+I would begin with these two questions because I find again and again in Beauvoir's writings (and those who hold similar philosophical views) the incorrect associations/beliefs:
 
 Roman Catholicism = Christianity
 
-And the third question (depending on how the conversation was going):
+Roman Catholic = Christian
+
+Crusades = Biblically supported political/military behavior
+
+A third question might be (depending on how the conversation was going):
 
 How was being "Sartre's woman" (and Algren's) any more liberating, philosophically, physically, emotionally or otherwise, than being a follower of a religion that sees woman as second to man?
 
