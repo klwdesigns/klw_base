@@ -21,7 +21,7 @@ Roman Catholicism = Christianity
 
 And the third question (depending on how the conversation was going):
 
-How was being "Sartre's woman" (and then Algren's) any more liberating, philosophically, physically, emotionally or otherwise, than being a follower of a religion that sees woman as second to man?
+How was being "Sartre's woman" (and Algren's) any more liberating, philosophically, physically, emotionally or otherwise, than being a follower of a religion that sees woman as second to man?
 
 From a distance, seems to me like Beauvoir's view of life wasn't so beau nor was it sans parti pris. But I can't blame her. We all are influenced by experiences in childhood, for good or for bad. And those influences, many times, come out in ways that we don't even realize, even the most intellectual of us.
 
