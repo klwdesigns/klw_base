@@ -5,7 +5,7 @@ date: 2019-07-24T14:41:54.359Z
 ---
 ![](/assets/uploads/ee8c748a-9add-44af-8852-d8db7bcc2a4d.jpeg)
 
-I would've liked to have had the opportunity to speak with Simone de Beauvoir. I wouldn't have asked her many questions. The first being:
+Given the opportunity, I would have asked Simone de Beauvoir many questions. The first being:
 
 Did you ever stop to consider that your Roman Catholic upbringing might have negatively influenced your view of the books of the Bible, particularly Genesis?
 
