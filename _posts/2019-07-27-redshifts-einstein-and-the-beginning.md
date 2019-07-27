@@ -21,4 +21,4 @@ Einstein had been wrong about the universe. And his "work-around" known as the c
 
 The universe was indeed expanding from a beginning point in time and space.
 
-A moment undeniable.
+A cosmic moment undeniable.
