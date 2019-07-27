@@ -13,7 +13,7 @@ Einstein's theories had tremendous implications. They suggested a dynamic univer
 
 But Einstein, like many other physicists of his time, did not want to accept the BIG implication of his theories: the universe had a beginning and it was expanding. The universe was not just a static void filled with stars. He even attempted to include the concept of a cosmological constant to deal with the problem of a static universe collapsing in on itself.  
 
-In 1931, while in the United States, Einstein accepted an invitation by Edwin Hubble to observe and consider his discoveries of an expanding universe. After looking through Hubble's massive, revolutionary telescope, Einstein admitted:
+In 1931, while in the United States, Einstein accepted an invitation by Edwin Hubble to observe and consider his discoveries of an expanding universe. Most important to his discoveries was the tiny changes in the light from distant galaxies, known as redshifts. These redshifts allowed scientists to measure the speed of rotation of the distant galaxies. (Much like a police radar.) After looking through Hubble's massive, revolutionary telescope, Einstein admitted:
 
 "The red shift of distant nebulae has smashed my old construction like a hammer blow."
 
