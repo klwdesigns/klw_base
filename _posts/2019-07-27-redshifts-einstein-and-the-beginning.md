@@ -1,7 +1,7 @@
 ---
 layout: post
 title: 'Redshifts, Einstein and the Beginning'
-date: 2019-07-27T18:51:04.596Z
+date: 2019-07-27T20:51:00.000Z
 ---
 ![](/assets/uploads/f0ed3e8c-2578-4e4a-9e46-b0cec260cfa9.jpeg)
 
