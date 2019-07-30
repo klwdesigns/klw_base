@@ -10,3 +10,5 @@ date: 2019-07-30T13:23:49.637Z
 12 The land produced vegetation: plants bearing seed according to their kinds and trees bearing fruit with seed in it according to their kinds. And God saw that it was good. 
 
 13 And there was evening, and there was morning—the third day.
+
+In the (wonderful) beginning...
