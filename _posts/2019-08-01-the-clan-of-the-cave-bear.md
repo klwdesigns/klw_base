@@ -1,8 +1,10 @@
 ---
 layout: post
 title: The Clan of the Cave Bear
-date: 2019-08-02T00:55:26.349Z
+date: 2019-08-02T02:05:00.000Z
 ---
+![](/assets/uploads/ee708ff3-c781-4d44-a8f6-c131db9bca7c.jpeg)
+
 The series to which _The Clan of the Cave Bear_ belongs was a favorite of my maternal grandmother. I can remember in the 80s and 90s, seeing the thick volumes laying on the little table next to her chair in the family room. But, aside from the first five pages just now, I've never been moved to read it, never had the series recommended to me by anyone in my family. (My mom read the first couple of books, as well.)
 
 Strangely enough the motivation to read the book came three days ago. While nerding out one evening, looking up info on the human genome, I happened upon a photo of the cave paintings (or a replica of the paintings) of Chauvet. I couldn't look away. It's a long-time dream of mine to visit one such cave in France. But in all my visits to the areas surrounding these caves, I've never been able to go. One day, perhaps, after I write a book series like Auel's, I'll get a chance to go inside Chauvet.
