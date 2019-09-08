@@ -29,4 +29,4 @@ There are more good works out there. Keep going. Keep crying out to God in every
 
 **Tennis was (past tense) a framework, a place, never the essence.
 
-***Responses are always welcomed. Email on the home page.
+***Responses/comments/criticisms are always welcomed. Email on the home page.
