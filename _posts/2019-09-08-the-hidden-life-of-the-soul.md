@@ -27,4 +27,6 @@ There are more good works out there. Keep going. Keep crying out to God in every
 
 “He never fails to grant such light as makes it impossible for us to lose our way so long as we follow His leading.”
 
-\*\*Tennis was (past tense) a framework, a place, never the essence.
+**Tennis was (past tense) a framework, a place, never the essence.
+
+***Responses are always welcomed. Email on the home page.
