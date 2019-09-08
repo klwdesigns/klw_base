@@ -17,7 +17,7 @@ To see the quotation now, hanging on my wall, it might seem as though it were so
 
 In 1991/2, none of my plans, none of my imaginations, included France. And it certainly didn’t include tennis.
 
-The quotation hangs by my door. I see it every time I walk out of my room where I have prayed so many prayers. It’s a reminder that we are/I am God’s workmanship, created in Christ Jesus to do good works, which God prepared in advance so that we may do them.
+The quotation hangs by my door. I see it every time I walk out of my room where I have prayed so many prayers. It’s a reminder that all believers are God’s workmanship, created in Christ Jesus to do good works, which God prepared in advance so that we may do them.
 
 Destiny? Not sure that’s the word. But you get the meaning. 
 
