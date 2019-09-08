@@ -17,9 +17,11 @@ To see the quotation now, hanging on my wall, it might seem as though it were so
 
 In 1991/2, none of my plans, none of my imaginations, included France. And it certainly didn’t include tennis.
 
-The quotation hangs by my door. I see it every time I walk out of my room where I have prayed so many prayers. It’s a reminder that all believers are God’s workmanship, created in Christ Jesus to do good works, which God prepared in advance so that we may do them.
+The quotation hangs by my door. I see it every time I walk out of my room where I have prayed so many prayers. It’s a monument to God’s plans for me—-plans created before the foundation of the earth, if that can be imagined. Paul’s letter to the Ephesians states it better:
 
-Destiny? Not sure that’s the word. But you get the meaning. 
+“We (believers) are God’s workmanship, created in Christ Jesus to do good works, which God prepared in advance so that we may do them.”
+
+So, is this destiny? Not sure that’s the word. But you get the meaning. 
 
 There are more good works out there. Keep going. Keep crying out to God in every moment. You’ll make it.
 
