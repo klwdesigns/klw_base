@@ -3,7 +3,7 @@ layout: post
 title: The Hidden Life of the Soul
 date: 2019-09-08T21:12:16.212Z
 ---
-
+![](/assets/uploads/a799a1e6-b69e-4317-b6cc-ee185ca9aedb.jpeg)
 
 This plaque has hung in my room for over twenty-five years. It was given to me as a birthday gift from a dear friend while we were at university. It was only recently (maybe a year or two ago?) that I took note of the author: Jean Nicholas Grou.
 
@@ -25,4 +25,4 @@ There are more good works out there. Keep going. Keep crying out to God in every
 
 “He never fails to grant such light as makes it impossible for us to lose our way so long as we follow His leading.”
 
-**Tennis was (past tense) a framework. Not the essense.
+\*\*Tennis was (past tense) a framework. Not the essense.
