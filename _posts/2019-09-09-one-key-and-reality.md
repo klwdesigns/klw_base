@@ -7,5 +7,6 @@ date: 2019-09-10T02:40:03.572Z
 
 Comme ça.
 
-At least, that’s how it appeared to me. 
+At least, that’s how it appeared to me when she put the key in my hand. 
 
+**Over Oceans: A Memoir, Rome, Chp 82. 
