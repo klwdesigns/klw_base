@@ -11,6 +11,6 @@ I was reminded of this unique aspect of my country yesterday, while in the New O
 
 As fascinating as NYC might be for a week, there’s so much more beyond the cement and skyscrapers. America is a thousand or more countries—-transplanted, diverse, beautiful, vast, mixed and still growing. 
 
-Cafe du Monde? Maybe. 
+Cafe du Monde? Maybe. Maybe not.
 
 But without a doubt, this is the land of lache pas la patate.         
