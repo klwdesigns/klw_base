@@ -34,3 +34,5 @@ A lesbian may say, ‘When I‘m involved sexually, it‘s the only time I feel 
 // end of excerpt Full article: https://www.dijg.de/english/tomboys-lesbians-relationship-accepting-sex-gender //
 
 This world is full of counterfeits. But, thank God, there is the real thing.
+
+\*\*Fascinating Q&A by Dr. Nicolosi on the biological / neurological aspects of homosexuality, shame, and enactment. Worth examining, even if you don't agree with him 100%: <https://www.youtube.com/watch?v=7kW4_4pat58>
