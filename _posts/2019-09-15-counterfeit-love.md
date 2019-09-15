@@ -3,7 +3,7 @@ layout: post
 title: Counterfeit Love?
 date: 2019-09-15T20:50:00.000Z
 ---
-Currency inspectors are trained in identifying counterfeits mainly by knowing every detail of the real thing, not by studying counterfeits. In short, when you know the real thing, counterfeits become obvious.
+Currency inspectors are trained to identify counterfeits mainly by knowing every detail of the real thing, not by studying counterfeits. When you know the real thing, counterfeits become obvious.
 
 In matters of love, the same is true. When you've never known real love, you have no ability to identify true love. You're always draw to that which is counterfeit, that which never truly satisfies. Life can be quite painful.
 
