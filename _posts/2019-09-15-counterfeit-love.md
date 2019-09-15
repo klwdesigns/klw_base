@@ -17,7 +17,7 @@ What's prompted this note? Well, a long conversation last night with a few young
 
 It's not easy to speak into anyone's life, I conveyed quickly. Apart from a miracle, there is no way to instantly heal psychological trauma suffered in childhood. I cautioned them to pray for their friends, to listen to them friends and to offer, demonstrate, and show real love. By God's grace, that which is counterfeit will lose its shine, and their friends might start to feel safe, and might even begin to question what's real, and what's counterfeit.
 
-For further insight and understanding, here is an excerpt from [an article by Dr. Joseph and Linda Nicolosi on lesbianism, for the German Institute for Youth and Society](https://www.dijg.de/english/tomboys-lesbians-relationship-accepting-sex-gender/): 
+You're not going to talk anyone out of anything, I emphasized to my young friends. An excerpt from [an article by Dr. Joseph and Linda Nicolosi, written for the German Institute for Youth and Society](https://www.dijg.de/english/tomboys-lesbians-relationship-accepting-sex-gender/) helps illustrate that:
 
 Therapist (and ex-Iesbian) Diane Eller-Boyko explains this unfulfilled longing, which she calls her "own personal story":
 
@@ -30,3 +30,7 @@ As Eller-Boyko explains, many lesbian women who seek change do not persist in th
 “We can say to a teenage boy, ‘OK, you can get your emotional needs met but it doesn’t have to become sexual.’ A girl, on the other hand, may perceive that the therapist is asking her to give up a relationship upon which she feels deeply dependent and needy. She very likely feels as if she can’t live without her love interest or ‘significant other.’
 
 A lesbian may say, ‘When I‘m involved sexually, it‘s the only time I feel I‘m loved and cared for.’ Particularly for the girl who has been sexually molested, same-sex behavior offers a sense of control in the relationship with the other person. Such girls view their lesbian sexuality as a way to gain mastery of a threatening situation. It is the only time they feel ‘safe’ with their sexuality.”
+
+// end of excerpt Full article: https://www.dijg.de/english/tomboys-lesbians-relationship-accepting-sex-gender //
+
+This world is full of counterfeits. And in each and every situation, they're only a shadow of the real thing. But, there is, indeed, the real thing.
