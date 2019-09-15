@@ -33,4 +33,4 @@ A lesbian may say, ‘When I‘m involved sexually, it‘s the only time I feel 
 
 // end of excerpt Full article: https://www.dijg.de/english/tomboys-lesbians-relationship-accepting-sex-gender //
 
-This world is full of counterfeits. And in each and every situation, they're only a shadow of the real thing. But, there is, indeed, the real thing.
+This world is full of counterfeits. But, thank God, there is the real thing.
