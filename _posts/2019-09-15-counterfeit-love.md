@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Counterfeit Love
+title: Counterfeit Love?
 date: 2019-09-15T19:50:50.628Z
 ---
 Currency inspectors are trained in identifying counterfeits mainly by knowing every detail of the real thing, not by studying counterfeits. In short, when you know the real thing, counterfeits become obvious.
