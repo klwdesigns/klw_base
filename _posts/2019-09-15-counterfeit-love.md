@@ -11,13 +11,13 @@ That is, unless you allow yourself to question why you're attracted to counterfe
 
 To me, this doesn't seem very honest. It seems like a terrible state to exist in. But I tend to agree with Socrates in this: "The unexamined life is not worth living."
 
-And by extension, I'd say that unexamined feelings or attractions are worth having.
+And by extension, I'd say that unexamined feelings or attractions aren’t worth having.
 
 What's prompted this note? Well, a long conversation last night with a few younger women. They weren't sure how to speak into the lives of several friends who have adopted homosexual or lesbian identities. Their friends had expressed emotional pain from trauma (within their family of origin), from current romantic relationships, from ongoing depression and other psychological events. 
 
 It's not easy to speak into anyone's life, I conveyed quickly. Apart from a miracle, there is no way to instantly heal psychological trauma suffered in childhood. I cautioned them to pray for their friends, to listen to them friends and to offer, demonstrate, and show real love. By God's grace, that which is counterfeit will lose its shine, and their friends might start to feel safe, and might even begin to question what's real, and what's counterfeit.
 
-You're not going to talk anyone out of anything, I emphasized to my young friends. An excerpt from [an article by Dr. Joseph and Linda Nicolosi, written for the German Institute for Youth and Society](https://www.dijg.de/english/tomboys-lesbians-relationship-accepting-sex-gender/) helps illustrate that:
+You're not going to talk anyone out of anything, I emphasized to my young friends. An excerpt from [an article on the German Institute for Youth and Society website](https://www.dijg.de/english/tomboys-lesbians-relationship-accepting-sex-gender/) helps illustrate that:
 
 Therapist (and ex-Iesbian) Diane Eller-Boyko explains this unfulfilled longing, which she calls her "own personal story":
 
@@ -35,4 +35,4 @@ A lesbian may say, ‘When I‘m involved sexually, it‘s the only time I feel 
 
 This world is full of counterfeits. But, thank God, there is the real thing.
 
-\*\*Fascinating Q&A by Dr. Nicolosi on the biological / neurological aspects of homosexuality, shame, and enactment. Worth examining, even if you don't agree with him 100%: <https://www.youtube.com/watch?v=7kW4_4pat58>
+\*\*Fascinating Q&A on the biological / neurological aspects of homosexuality, shame, and enactment. Worth examining, even if you don't agree 100% with the psychiatrist’s ideas: <https://www.youtube.com/watch?v=7kW4_4pat58>
