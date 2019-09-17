@@ -11,7 +11,7 @@ That is, unless you allow yourself to question why you're attracted to counterfe
 
 To me, this doesn't seem very honest. It seems like a terrible state to exist in. But I tend to agree with Socrates in this: "The unexamined life is not worth living."
 
-And by extension, I'd say that unexamined feelings or attractions are worth having.
+And by extension, I'd say that unexamined feelings or attractions aren’t worth having.
 
 What's prompted this note? Well, a long conversation last night with a few younger women. They weren't sure how to speak into the lives of several friends who have adopted homosexual or lesbian identities. Their friends had expressed emotional pain from trauma (within their family of origin), from current romantic relationships, from ongoing depression and other psychological events. 
 
