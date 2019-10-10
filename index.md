@@ -20,7 +20,7 @@ title: Krista Lyn White
 <details>
   <summary style="outline:none;"><h1 style="display: inline; color: #ba2086;">Work</h1></summary>
   <ul>
-     <li>1997 ~ Writer [available for freelance work]</li>
+     <li>1997 ~ Writer</li>
      <li>2015 ~ Founder of <a style="color:#ba2086" href="https://womenssportsoutreach.com">Women's Sports Outreach</a></li>
      <li>2012 ~ <a style="color:#ba2086" href="https://bibpress.com">Blue Iris Books</a></li>
   </ul>     
@@ -36,10 +36,8 @@ title: Krista Lyn White
   </ul>     
 </details>
 <details>
-  <summary style="outline:none;"><h1 style="display: inline; color:#f7b523;">Hyperlinks & Contact</h1></summary>
+  <summary style="outline:none;"><h1 style="display: inline; color:#f7b523;">Contact</h1></summary>
   <ul>
-     <li><a style="color:#f7b523;" href="https://saint-bisou.com">Saint-Bisou.com</a></li>
-     <li><a style="color:#f7b523;" href="https://klw-designs.com">KLW Designs</a></li>
      <li>Email: hello [ at ] kristalynwhite.com</li>
   </ul>     
 </details>
