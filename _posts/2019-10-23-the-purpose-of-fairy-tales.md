@@ -7,7 +7,7 @@ date: 2019-10-23T17:14:26.587Z
 
 "The Emperor's New Clothes" is a favorite of mine. Written by the Danish author Hans Christian Andersen, it demonstrates what (I believe) fiction should do: teach a truth about the human condition.
 
-Fiction (good fiction!) usually penetrates the conscience better than direct truth. 
+Fiction (good fiction!) usually penetrates the conscience better than direct truth. It's one reason, children should still have fairy tales read to them.
 
 Of H.C. Andersen's tale, one critic wrote: 
 
