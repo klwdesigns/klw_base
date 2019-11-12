@@ -21,9 +21,11 @@ A few quotes from the Switch On Your Brain that have struck me:
 
 Some Scripture passages that I’m looking at with greater understanding:
 
+“I have set before you life and death, blessing and cursing; therefore choose life, that both you and your descendants may live.” Deut. 30: 19
+
 “Do not conform to the pattern of this world, but be transformed by the renewing of your mind.” Romans 12:2
 
-“Finally, brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable, if there is any excellence, if there is anything worthy of praise, think about these things” Philippians 4:8
+“Finally, brothers and sisters, whatever is true, whatever is honorable, whatever is just, whatever is pure, whatever is lovely, whatever is commendable, if there is any excellence, if there is anything worthy of praise, think about these things.” Philippians 4:8
 
 Switch on life. 
 It’s your choice.
