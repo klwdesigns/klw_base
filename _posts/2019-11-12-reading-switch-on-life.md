@@ -3,7 +3,7 @@ layout: post
 title: 'Reading: Switch On... (Life)'
 date: 2019-11-12T16:32:36.238Z
 ---
-![](/assets/uploads/f73a92aa-43e0-4b0c-b22c-e693c33b5c42.png)
+![](/assets/uploads/c62c7441-482e-4fb9-b460-70e207f7804b.jpeg)
 
 Recently, a friend shared her thoughts on this book. I had it already, but for whatever reason, never got around to reading it. 
 
@@ -27,5 +27,3 @@ Some Scripture passages that I’m looking at with greater understanding:
 
 Switch on life. 
 It’s your choice.
-
-
