@@ -1,6 +1,6 @@
 ---
 layout: post
-title: When should you stop and consider other solutions to a problem?
+title: When should you consider other solutions to a problem?
 date: 2019-12-04T18:16:54.124Z
 ---
 When the pan flips over on you the first time...
