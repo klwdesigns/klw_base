@@ -20,9 +20,9 @@ title: Krista Lyn White
 <details>
   <summary style="outline:none;"><h1 style="display: inline; color: #ba2086;">Work</h1></summary>
   <ul>
-     <li>1997 ~ Writer</li>
-     <li>2015 ~ Founder of <a style="color:#ba2086" href="https://womenssportsoutreach.com">Women's Sports Outreach</a></li>
-     <li>2012 ~ <a style="color:#ba2086" href="https://bibpress.com">Blue Iris Books</a></li>
+     <li>Since 1997, Writer</li>
+     <li>Since 2015, Editor @ <a style="color:#ba2086" href="https://womenssportsoutreach.com">Women's Sports Outreach</a></li>
+     <li>Since 2012, Book designer @ <a style="color:#ba2086" href="https://bibpress.com">Blue Iris Books</a></li>
   </ul>     
 </details>
 
