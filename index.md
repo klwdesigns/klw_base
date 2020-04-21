@@ -25,16 +25,7 @@ title: Krista Lyn White
      <li>2012 ~ <a style="color:#ba2086" href="https://bibpress.com">Blue Iris Books</a></li>
   </ul>     
 </details>
-<details>
-  <summary style="outline:none;"><h1 style="display: inline; color:#e9560e;">Notes</h1> <a style="color:#e9560e" href="https://kristalynwhite.com/feed.xml">[feed]</a></summary>
-  <ul>
-     {% for post in site.posts %}
-      <li>
-        <a style="font-weight:bold; text-decoration:underline;" href="{{ post.url }}">{{ post.title }}</a> {{ post.date }} {{ post.excerpt }}
-      </li>
-     {% endfor %}
-  </ul>     
-</details>
+
 <details>
   <summary style="outline:none;"><h1 style="display: inline; color:#f7b523;">Contact</h1></summary>
   <ul>
