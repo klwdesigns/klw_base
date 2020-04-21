@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Magnum Opi To Dream By
+title: Magnum Opi to Dream By
 date: 2019-06-21T02:05:19.341Z
 ---
 Short but sweet list:
