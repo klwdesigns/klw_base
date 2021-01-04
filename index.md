@@ -20,9 +20,10 @@ title: Krista Lyn White
 <details>
   <summary style="outline:none;"><h1 style="display: inline; color: #ba2086;">Work</h1></summary>
   <ul>
-     <li>Since 1997 - Writer</li>
-     <li>Since 2015 - Coordinator, <a style="color:#ba2086" href="https://womenssportsoutreach.com">Women's Sports Outreach</a></li>
+     <li>Since 1997 - Freelance Writer [see Books]</li>
+     <li>Since 2007 - Sports Mentor, <a style="color:#ba2086" href="https://womenssportsoutreach.com">Women's Sports Outreach</a></li>
      <li>Since 2012 - Owner, <a style="color:#ba2086" href="https://bibpress.com">Blue Iris Books</a></li>
+     <li>Since 2020 - Online Marketing Manager, <a style="color:#ba2086" href="https://treeshepherds.net">Tree Shepherds</a></li>
   </ul>     
 </details>
 
@@ -41,6 +42,6 @@ title: Krista Lyn White
      <li>Loves to eat bánh mì</li>
      <li>California native</li>
      <li>Photo: <a style="color:#ffdf05;" href="/assets/Krista-Lyn-White.jpg"> here</a> [for the curious]</li>
-     <li>All posts are © Krista Lyn White. All rights reserved.</li>
+     <li>All © Krista Lyn White. All rights reserved.</li>
   </ul>     
 </details>
